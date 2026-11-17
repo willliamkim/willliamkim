@@ -1,1 +1,1 @@
-i'm bad at coding, and math, and pretty much everything
+i'm bad at coding, and math, and pretty much everything in life
